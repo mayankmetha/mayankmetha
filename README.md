@@ -1,3 +1,3 @@
 ### Mayank Metha here.
 
-### Have a great day.
+Have a great day.
